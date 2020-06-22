@@ -10,5 +10,6 @@ Ein echter page-turner
 * Hausbesitzer
 * Familienvater
 
-> Hier geht es nicht um Coyoten, mach dir doch nichts vor. Es geht um Mexikaner, es geht um Schwarze.
-> Es geht um Ausgrenzung, Rassentrennung und Hass. Jack sind die Coyoten doch vollkommen egal.
+Mossbacher:
+'Hier geht es nicht um Coyoten, mach dir doch nichts vor.
+Es geht um Mexikaner, es geht um Schwarze. Es geht um Ausgrenzung, Rassentrennung und Hass. Jack sind  die Coyoten doch vollkommen egal.'
