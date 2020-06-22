@@ -12,4 +12,4 @@ Ein echter page-turner
 
 Zitat Mossbacher:
 
-"Hier geht es nicht um Coyoten, mach dir doch nichts vor. Es geht um Mexikaner, es geht um Schwarze. Es geht um Ausgrenzung, Rassentrennung und Hass. Jack sind die Coyoten doch vollkommen egal."
+\"Hier geht es nicht um Coyoten, mach dir doch nichts vor. Es geht um Mexikaner, es geht um Schwarze. Es geht um Ausgrenzung, Rassentrennung und Hass. Jack sind die Coyoten doch vollkommen egal.\"
