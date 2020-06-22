@@ -10,6 +10,6 @@ Ein echter page-turner
 * Hausbesitzer
 * Familienvater
 
-Hier geht es nicht um Coyoten, mach dir doch nichts vor.
+>> Hier geht es nicht um Coyoten, mach dir doch nichts vor.
 
 <img src="https://s3.eu-central-1.amazonaws.com/faltercdn/img/978342/320/9783423209359_M.jpg"/>
